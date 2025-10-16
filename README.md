@@ -53,7 +53,7 @@ Here are a few highlights from my portfolio 👇
 ## 📫 Let's Connect
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/sumahassanswamy/)  
-- 📧 [suma.mkannik@gmail.com](suma.mkannik@gmail.com)    
+- 📧 suma.mkannik@gmail.com   
 
 ---
 
